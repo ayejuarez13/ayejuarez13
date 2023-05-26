@@ -5,4 +5,4 @@
 - 😄I’m interested in ux/ui design
 - 📫 contact me: ayejuarez13@gmail.com
 
-Buenos Aires - Argentina - 2023
+Buenos Aires - Argentina - 2023 - AJ
